@@ -10,4 +10,4 @@
 
 本网站为您精选最新优质成人内容，提供丰富多样的高清视频资源，支持多终端流畅播放。资源更新及时，分类明确，保证您轻松找到喜欢的影片，体验极致观看感受。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/but20250709/but8 ）</span>
